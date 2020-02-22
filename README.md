@@ -1,6 +1,3 @@
 # hello-world
-skdfjhsjhdfkshfkjs
-sdfhskjdhfsk
-asdhjrkdhvfkd
-sagdaj13121439
-,.,vlsefiuhuwhei
+wo我也不知道怎么用
+所以就瞎试试把

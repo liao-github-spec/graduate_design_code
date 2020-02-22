@@ -1,2 +1,2 @@
 # hello-world
-测试试用github
+I only want to try how to use github
